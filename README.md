@@ -1,3 +1,3 @@
 Makia :v vvvvv :v:v 
 
-hola putos
+hola gente
